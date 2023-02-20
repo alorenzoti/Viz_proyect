@@ -33,7 +33,7 @@ Por ultimo podemos observar la topografia de Nepal y las primeras cumbres que ha
 
 Referido a los datos brilla por su ausencia la participación de Nepal, en este caso es un juego de ver la pieza que falta.
 
-Ya que pese a ser un pais con varias de las montañas más altas del mundo es bastante asombroso lo tarde y poco que aparecen.
+Ya que, pese a ser un pais con varias de las montañas más altas del mundo, es bastante asombroso lo tarde y poco que aparecen.
 
 Dado que no solian ser los que aportaban el capital de las expediciones, aún siendo parte vital e imprescindible de las mismas, han borrado su participación de la historia del alpinismo.
 
